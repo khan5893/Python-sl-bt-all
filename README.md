@@ -7,3 +7,4 @@
 5. The name of Bangladesh prime minister is Shek Hasina. She is Critical, Dangarus 
    and Islam Birudi. We can understand that properly.
 6. My name is: AKASH KHAN
+7.Sumaiya tithy
